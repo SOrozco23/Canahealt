@@ -59,4 +59,3 @@ Rocky, un bulldog de 6 años, fue diagnosticado con dolor crónico. Gracias a Ca
 ---
 
 Cada uno de estos casos destaca la efectividad y seguridad de Canahelth en mejorar la calidad de vida de nuestras queridas mascotas.
-
