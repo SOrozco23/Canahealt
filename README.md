@@ -4,6 +4,8 @@
 
 Canahelth es un innovador producto de cannabis medicinal diseñado específicamente para el bienestar de nuestras queridas mascotas. Surgió de la necesidad de ofrecer una alternativa natural y efectiva para tratar diversas condiciones médicas en animales.
 
+![Mascotas felices](https://www.timbrit.com.ar/blog/wp-content/uploads/2019/05/shutterstock_274178327-1170x780.jpg)
+
 ### ¿De Dónde Surgió Canahelth?
 
 La idea de Canahelth nació de un equipo de veterinarios y expertos en cannabis medicinal que, preocupados por el bienestar de los animales, decidieron investigar y desarrollar un producto que pudiera aliviar el dolor y mejorar la calidad de vida de nuestras mascotas.
@@ -22,6 +24,8 @@ Con Canahelth, ofrecemos una solución segura y natural para el cuidado de tus m
 ## ¿Qué es el Cannabis Medicinal?
 
 El cannabis medicinal es una planta que contiene compuestos activos conocidos como cannabinoides, los cuales tienen propiedades terapéuticas beneficiosas.
+
+![Conejo relajado](https://image-album.com/wp-content/uploads/2016/08/rabbit-1029.jpg)
 
 ### Beneficios del Cannabis Medicinal para Mascotas
 
