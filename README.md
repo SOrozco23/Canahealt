@@ -42,19 +42,25 @@ Canahelth está formulado con extractos de cannabis de alta calidad y es seguro 
 
 Max es un labrador de 8 años que sufría de artritis severa. Después de comenzar el tratamiento con Canahelth, Max ha mostrado una notable mejoría en su movilidad y felicidad.
 
-![Max jugando en el parque](https://example.com/images/max.jpg)
+![Max jugando en el parque](https://www.petmd.com/sites/default/files/happy-labrador.jpg)
 
 ### Caso 2: Bella, la Gata Tranquila
 
 Bella, una gata de 5 años, solía estar muy ansiosa y asustada. Con Canahelth, Bella ahora es una gata más tranquila y confiada.
 
-![Bella relajada en casa](https://example.com/images/bella.jpg)
+![Bella relajada en casa](https://www.catster.com/wp-content/uploads/2017/08/A-fluffy-cat-looking-funny-surprised-or-concerned.jpg)
 
 ### Caso 3: Rocky, el Perro Resiliente
 
 Rocky, un bulldog de 6 años, fue diagnosticado con dolor crónico. Gracias a Canahelth, Rocky ahora puede disfrutar de sus paseos diarios sin dolor.
 
-![Rocky en un paseo](https://example.com/images/rocky.jpg)
+![Rocky en un paseo](https://www.thesprucepets.com/thmb/O_oX4n_l2T5Rvfa2A4B8RXP0ENY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/bulldog-breed-profile-1117991-hero-270b3f8f1f1d4b969c5d7558d5a9c85c.jpg)
+
+### Caso 4: Nibbles, el Conejo Relajado
+
+Nibbles es un conejo de 3 años que sufría de ansiedad. Después de comenzar con Canahelth, Nibbles se ha vuelto más relajado y feliz.
+
+![Nibbles relajado](https://image-album.com/wp-content/uploads/2016/08/rabbit-1029.jpg)
 
 ---
 
